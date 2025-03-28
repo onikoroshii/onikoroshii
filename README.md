@@ -61,7 +61,7 @@
 
 
 <p align="center">
- <img src="https://i.postimg.cc/nzWLxMgV/pony-town-github-temp-kiss-lift-hoof-blinking-padded-5x.gif" alt="pone" width="auto" 
+ <img src="https://i.postimg.cc/CLJsdC1F/pony-town-cute-and-funny-alcoholic-kiss-lift-hoof-blinking-padded-5x.gif" alt="pone" width="auto" 
      height="auto"/>  <img src="https://i.postimg.cc/Wpf9Rj49/better.png" alt="blox" width="auto" 
      height="300"/>
   
