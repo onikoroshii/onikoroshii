@@ -53,7 +53,7 @@
 <p align="center">
   here is some of my stuff
      </p>
-
+  
 <p align="center">
 <img src="https://64.media.tumblr.com/57c4c05437e822ac9c64d0a086c9c952/ae24030d6343d5f6-22/s1280x1920/8bbab6d2c3daa51180214fe16df0abfd883cd1a4.pnj" alt="dvider" width="600" 
      height="auto"/>
@@ -61,7 +61,8 @@
 
 
 <p align="center">
- <img src="https://i.postimg.cc/CLJsdC1F/pony-town-cute-and-funny-alcoholic-kiss-lift-hoof-blinking-padded-5x.gif" alt="pone" width="auto" 
+  <img src="https://s.namemc.com/3d/skin/body.png?id=d07af5d75318c346&model=slim&theta=30&phi=21&time=1329.96&width=600&height=800" alt="mc" width="auto" 
+     height="300"/> <img src="https://i.postimg.cc/CLJsdC1F/pony-town-cute-and-funny-alcoholic-kiss-lift-hoof-blinking-padded-5x.gif" alt="pone" width="auto" 
      height="auto"/>  <img src="https://i.postimg.cc/Wpf9Rj49/better.png" alt="blox" width="auto" 
      height="300"/>
   
