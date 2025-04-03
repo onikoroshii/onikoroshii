@@ -13,6 +13,10 @@
 4chan /x/ succubus final boss. old internet original gangsta. the only girl fate grand order player ever. also not even a girl. creepy old guy in a cute girl's body. i hate white people and all <s>cis</s> men. i like to eat them and watch the light leave their eyes. it is the only thing that brings me joy. if you think you can bring me more joy than that lets be friends!! <3 if you are a minor, bioessentialist or a moralist hide me. i like to be evil. most of my stuff is on my <a href="https://shutendouji.straw.page">strawpage</a> :D
 </p>
   
+<p align="center">
+i always happy to talk c: sometimes im offtab so the best way is to whisper me. i promise i dont bite.
+</p>
+  
 ***
 
 <p align="center">
@@ -63,7 +67,7 @@
 <p align="center">
   <img src="https://s.namemc.com/3d/skin/body.png?id=d07af5d75318c346&model=slim&theta=30&phi=21&time=1329.96&width=600&height=800" alt="mc" width="auto" 
      height="300"/> <img src="https://i.postimg.cc/CLJsdC1F/pony-town-cute-and-funny-alcoholic-kiss-lift-hoof-blinking-padded-5x.gif" alt="pone" width="auto" 
-     height="auto"/>  <img src="https://i.postimg.cc/Wpf9Rj49/better.png" alt="blox" width="auto" 
+     height="auto"/>  <img src="https://i.postimg.cc/g0mwKhjN/image-2025-04-02-232827577-Picsart-Background-Remover.png" alt="blox" width="auto" 
      height="300"/>
   
 </p>
@@ -71,7 +75,7 @@
 ***
 
 <p align="center">
-im always happy to talk c: sometimes im offtab so the best way is to whisper me. i promise i dont bite.
+i made the minecraft skin myself :D and the shirt/pant textures for my roblox avatar!
 </p>
 
 ***
