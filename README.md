@@ -67,7 +67,7 @@ i always happy to talk c: sometimes im offtab so the best way is to whisper me. 
 <p align="center">
   <img src="https://s.namemc.com/3d/skin/body.png?id=d07af5d75318c346&model=slim&theta=30&phi=21&time=1329.96&width=600&height=800" alt="mc" width="auto" 
      height="300"/> <img src="https://i.postimg.cc/CLJsdC1F/pony-town-cute-and-funny-alcoholic-kiss-lift-hoof-blinking-padded-5x.gif" alt="pone" width="auto" 
-     height="auto"/>  <img src="https://i.postimg.cc/g0mwKhjN/image-2025-04-02-232827577-Picsart-Background-Remover.png" alt="blox" width="auto" 
+     height="auto"/>  <img src="https://i.postimg.cc/k4STF2XX/image-2025-04-06-190020947-Picsart-Background-Remover.png" alt="blox" width="auto" 
      height="300"/>
   
 </p>
