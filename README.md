@@ -79,3 +79,5 @@ i made the minecraft skin myself :D and the shirt/pant textures for my roblox av
 </p>
 
 ***
+
+![](https://komarev.com/ghpvc/?onikoroshii&color=blueviolet)
