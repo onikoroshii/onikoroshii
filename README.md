@@ -1,4 +1,8 @@
 <p align="center">
+<img src="https://komarev.com/ghpvc/?username=onikoroshii&color=7851A0&label=DRUNKEN+OFFERINGS&base=345">
+</p>
+
+<p align="center">
   
 <img src="https://i.postimg.cc/cJqMxLqm/shuten-icon.png" alt="shu"/>
 </p>
@@ -80,4 +84,3 @@ i made the minecraft skin myself :D and the shirt/pant textures for my roblox av
 
 ***
 
-![](https://komarev.com/ghpvc/?onikoroshii&color=blueviolet)
