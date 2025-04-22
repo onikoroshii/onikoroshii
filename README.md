@@ -19,6 +19,9 @@
   
 <p align="center">
 i always happy to talk c: sometimes im offtab so the best way is to whisper me. i promise i dont bite.
+  </p>
+  <p align="center">
+i love my husband <a href="https://github.com/okadaizou">@okadaizou</a> <img src="https://64.media.tumblr.com/f051a2b97e302bcdea44b1e9be30b363/083790971a7b0ae6-e3/s75x75_c1/0ca3a01fa7c23c9f872ab74096cac1fc1eaf3ade.gifv"/>
 </p>
   
 ***
