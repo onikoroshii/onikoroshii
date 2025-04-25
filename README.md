@@ -14,7 +14,7 @@
 ***
 
 <p align="center">
-4chan /x/ succubus final boss. old internet original gangsta. the only girl fate grand order player ever. also not even a girl. creepy old guy in a cute girl's body. i hate white people and all <s>cis</s> men. i like to eat them and watch the light leave their eyes. it is the only thing that brings me joy. if you think you can bring me more joy than that lets be friends!! <3 if you are a minor, bioessentialist or a moralist hide me. i like to be evil. most of my interests are on my <a href="https://shutendouji.straw.page">strawpage</a> :D
+4chan /x/ succubus final boss. old internet original gangsta. the only girl fate grand order player ever. also not even a girl. creepy old guy in a cute girl's body. i hate white people and gross weird men. i like to eat them and watch the light leave their eyes. it is the only thing that brings me joy. if you think you can bring me more joy than that lets be friends!! <3 if you are a minor, bioessentialist or a moralist hide me. i like to be evil. most of my interests are on my <a href="https://shutendouji.straw.page">strawpage</a> :D
 </p>
   
 <p align="center">
