@@ -4,7 +4,7 @@
 
 <p align="center">
   
-<img src="https://i.postimg.cc/Dfb2ZX7z/shuten-douuuuuuu.png" alt="shu"/>
+<img src="https://i.postimg.cc/vTGXpnzv/shuten-douuuuuuu-smasll.png" alt="shu"/>
 </p>
 
 <p align="center">
