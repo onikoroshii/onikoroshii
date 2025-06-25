@@ -73,7 +73,7 @@ i love my husband <a href="https://github.com/okadaizou">@okadaizou</a> <img src
 
 <p align="center">
   <img src="https://s.namemc.com/3d/skin/body.png?id=d07af5d75318c346&model=slim&theta=30&phi=21&time=1329.96&width=600&height=800" alt="mc" width="auto" 
-     height="300"/> <img src="https://i.postimg.cc/CLJsdC1F/pony-town-cute-and-funny-alcoholic-kiss-lift-hoof-blinking-padded-5x.gif" alt="pone" width="auto" 
+     height="300"/> <img src="https://i.postimg.cc/CMzXY02n/pony-town-sake-loving-oni-trot-blinking-padded-5x.gif" alt="pone" width="auto" 
      height="auto"/>  <img src="https://i.postimg.cc/vZShJr4Z/image-2025-04-06-190020947-Picsart-Background-Remover.png" alt="blox" width="auto" 
      height="300"/>
   
