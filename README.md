@@ -14,7 +14,7 @@
 ***
 
 <p align="center">
-4chan /x/ succubus final boss. old internet original gangsta. the only girl fate grand order player ever. if you are a minor, bioessentialist, radqueer or a moralist hide me. i like to be evil. most of my interests are on my <a href="https://shutendouji.straw.page">strawpage</a> :D
+4chan /x/ succubus final boss. old internet original gangsta. the only girl fate grand order player ever. if you are a minor, bioessentialist, radqueer or a moralist hide me. white people, you are on thin ice. i like to be evil. most of my interests are on my <a href="https://shutendouji.straw.page">strawpage</a> :D
 </p>
   
 <p align="center">
