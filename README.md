@@ -62,7 +62,7 @@ i love my husband <a href="https://github.com/okadaizou">@okadaizou</a> <img src
 </p>
 
 <p align="center">
-  here is some of my stuff
+  here is some of my stuff. i made all these below myself!
      </p>
   
 <p align="center">
