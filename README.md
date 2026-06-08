@@ -62,7 +62,7 @@ i love my husband <a href="https://github.com/okadaizou">@okadaizou</a> <img src
 </p>
 
 <p align="center">
-  here is some of my stuff. i made all these below myself!
+  here is some of my stuff. i made the mc skin, pt skin and the clothes/hair assets for the roblox avatar myself!
      </p>
   
 <p align="center">
